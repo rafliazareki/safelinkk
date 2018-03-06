@@ -1,0 +1,2 @@
+# safelinkk
+situs pemendek linkk
